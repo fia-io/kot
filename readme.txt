@@ -1,1 +1,0 @@
-Reading makes our talking English good.
